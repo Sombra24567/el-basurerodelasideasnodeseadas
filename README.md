@@ -1,0 +1,2 @@
+# el-basurerodelasideasnodeseadas
+ideas random
